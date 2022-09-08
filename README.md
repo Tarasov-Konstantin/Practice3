@@ -1,1 +1,3 @@
 :smiley:
+:sleeping:
+:satisfied:
