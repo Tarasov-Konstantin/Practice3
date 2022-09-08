@@ -1,1 +1,1 @@
-:smirk:
+:smiley:
